@@ -1,1 +1,1 @@
-STOP SPAMMING PEOPLE BY ADDING THEM TO THIS ORG WITHOUT THEIR PERMISSION.
+Please refrain from adding people to this organization without their knowledge and/or permission. It subscribes us to the notifications for the 11 repositories contained within, and is generally un-cool to do this.
